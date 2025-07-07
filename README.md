@@ -16,4 +16,4 @@
 
 总之，选择合适的平台，理性观看，您就能轻松享受优质的日本AV资源，同时确保安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td02 ）</span>
